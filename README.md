@@ -1,4 +1,0 @@
-# Squares
-# Squares
-# Squares
-# Squares
